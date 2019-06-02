@@ -1,1 +1,0 @@
-# kaist_sonata_camp
